@@ -11,3 +11,11 @@ https://fr.style.yahoo.com/sexologue-d%C3%A9veloppeur-cr%C3%A9ent-in-bed-1008152
 https://www.lesinrocks.com/2019/05/29/musiques/musiques/au-festival-nuits-sonores-une-sexologue-va-tenter-de-mesurer-le-potentiel-orgasmique-des-concerts/ 
 
 http://www.nova.fr/podcast/todays-special/le-todays-special-du-5-juin 
+
+https://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/ 
+
+https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-vous-propose-de-faire-lamour-a-thomas-pesquet.html 
+
+https://kissmyfrogs.com/aurelien-fache-api-artist-je-minvente-mon-propre-present/ 
+
+https://www.wedemain.fr/Nous-ne-sommes-qu-a-1-de-ce-que-la-realite-virtuelle-peut-nous-offrir_a3227.html

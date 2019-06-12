@@ -19,3 +19,26 @@ https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-v
 https://kissmyfrogs.com/aurelien-fache-api-artist-je-minvente-mon-propre-present/ 
 
 https://www.wedemain.fr/Nous-ne-sommes-qu-a-1-de-ce-que-la-realite-virtuelle-peut-nous-offrir_a3227.html
+
+https://vimeo.com/318037785 
+
+https://futureofsex.net/remote-sex/companies-explore-potential-benefits-mind-controlled-sex-toys/ 
+
+https://www.ean-online.com/company-news/developers-control-vibrator-using-brain-waves/
+
+https://www.playboy.hu/80072-megerkezett-a-gondolatokkal-vezerelheto-vibr
+
+http://www.fredzone.org/il-est-possible-de-controler-un-sextoy-par-la-pensee-grace-a-une-simple-api-554 
+
+https://www.xbiz.com/news/216997/lovense-api-enables-mind-controlled-sex-toys 
+
+https://www.dagospia.com/rubrica-2/media_e_tv/futuro-tele-dildo-ecco-prototipo-sex-toy-controllato-141207.htm 
+
+http://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/
+
+http://www.ilgiornale.it/news/tecnologia/i-sex-toys-si-controllano-pensiero-1361338.html 
+
+https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des-hashtags-ou-la-station-iss/
+
+https://www.vocativ.com/399920/control-sex-toy-vibrator-with-your-mind/index.html 
+

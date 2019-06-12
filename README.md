@@ -42,3 +42,7 @@ https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des
 
 https://www.vocativ.com/399920/control-sex-toy-vibrator-with-your-mind/index.html 
 
+https://www.franceinter.fr/emissions/vivement-demain/vivement-demain-09-avril-2017 
+
+https://www.capdigital.com/2018/05/14/black-mirror-vs-realite-augmentee-le-faux-du-vrai-en-six-expertises/ 
+

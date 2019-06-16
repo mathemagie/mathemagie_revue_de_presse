@@ -18,12 +18,6 @@ http://www.nova.fr/podcast/todays-special/le-todays-special-du-5-juin
 
 https://www.makery.info/2017/02/09/le-sextoy-controle-par-la-force-de-la-pensee-du-tag-parfait/ 
 
-https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-vous-propose-de-faire-lamour-a-thomas-pesquet.html 
-
-https://kissmyfrogs.com/aurelien-fache-api-artist-je-minvente-mon-propre-present/ 
-
-https://www.wedemain.fr/Nous-ne-sommes-qu-a-1-de-ce-que-la-realite-virtuelle-peut-nous-offrir_a3227.html
-
 https://vimeo.com/318037785 
 
 https://futureofsex.net/remote-sex/companies-explore-potential-benefits-mind-controlled-sex-toys/ 
@@ -47,6 +41,17 @@ https://www.letagparfait.com/fr/2017/02/06/controler-un-sextoy-par-la-pensee-des
 https://www.vocativ.com/399920/control-sex-toy-vibrator-with-your-mind/index.html 
 
 https://www.franceinter.fr/emissions/vivement-demain/vivement-demain-09-avril-2017 
+
+
+# divers 
+
+https://www.numerama.com/tech/230559-qui-est-aurelien-fache-cet-api-artist-qui-vous-propose-de-faire-lamour-a-thomas-pesquet.html 
+
+https://kissmyfrogs.com/aurelien-fache-api-artist-je-minvente-mon-propre-present/ 
+
+# AR/VR 
+
+https://www.wedemain.fr/Nous-ne-sommes-qu-a-1-de-ce-que-la-realite-virtuelle-peut-nous-offrir_a3227.html
 
 https://www.capdigital.com/2018/05/14/black-mirror-vs-realite-augmentee-le-faux-du-vrai-en-six-expertises/ 
 

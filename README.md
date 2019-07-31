@@ -2,6 +2,12 @@
 
 # sextech
 
+- CracCrac 
+
+- https://www.youtube.com/watch?v=iAilNEX91JM&feature=youtu.be 
+
+- documentaire sur Paris Premièr 
+
 https://www.glamourparis.com/amour-et-sexe/news/articles/une-sexologue-et-un-developpeur-creent-in-bed-with-laurent-garnier-un-sextoy-connecte-au-son-des-dj-sets-de-festival/74840 
 
 https://kissmyfrogs.com/yann-minh-sex-tech-startup/
